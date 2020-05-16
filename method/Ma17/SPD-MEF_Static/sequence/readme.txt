@@ -1,0 +1,1 @@
+Source image sequence by courtesy of Jacques Joffre.
